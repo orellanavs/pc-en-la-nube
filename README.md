@@ -9,7 +9,7 @@
 ## 🎥 Video tutorial (TikTok)
 
 👉 Mira el video paso a paso aquí:
-**[PEGA AQUÍ EL LINK DEL VIDEO]**
+**[https://vt.tiktok.com/ZSaboUWUC/]**
 
 ---
 
